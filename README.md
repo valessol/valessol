@@ -2,8 +2,6 @@
             <html lang="en">
             <head>
                 <title>My Github repositories</title>
-                <meta name="description" content="I´m in a constant learning about programming to become in a great UI developer, because I love to be a designer and love to be a web developer">
-                <meta name="keywords" content="html5, css3, sass, bootstrap, git, github">
                 <meta name="author"  content="Valeria Silveira">
             </head>
             <body>
