@@ -4,7 +4,7 @@ My name is Valeria and I´m in a constant learning about programming to become i
 
 Actually I have the followings skills:
 
-![](https://imagizer.imageshack.com/img922/9488/UJTfGd.jpg) ![](https://imagizer.imageshack.com/img924/5046/ZZh79k.jpg) ![](https://imagizer.imageshack.com/img924/3228/g2la2E.jpg) ![](https://imagizer.imageshack.com/img923/7205/RGcTiK.jpg) ![](https://imagizer.imageshack.com/img922/8356/9ooO6d.jpg) ![](https://imagizer.imageshack.com/img924/7343/fYXVxE.jpg) ![](https://imagizer.imageshack.com/img924/8340/5IRh8H.jpg) ![](https://imagizer.imageshack.com/img922/1033/727KWx.jpg)
+![](https://imagizer.imageshack.com/img923/4425/Vaf7F6.jpg) ![](https://imagizer.imageshack.com/img922/9500/b2tKIS.jpg) ![](https://imagizer.imageshack.com/img923/2542/ZplM6G.jpg) ![](https://imagizer.imageshack.com/img924/5254/9C1kBi.jpg) ![](https://imagizer.imageshack.com/img922/5120/IOWopv.jpg) ![](https://imagizer.imageshack.com/img924/1486/hzqDbN.jpg) ![](https://imagizer.imageshack.com/img924/706/UtZTxt.jpgg) ![](https://imagizer.imageshack.com/img923/5897/aVbCOe.jpg)
 
 ------------------------------------------
-![](https://imagizer.imageshack.com/img924/4743/MN58GJ.jpg) ![](https://imagizer.imageshack.com/img923/8195/N7ztA1.jpg) ![](https://imagizer.imageshack.com/img924/6626/Tzbr3B.jpg) ![](https://imagizer.imageshack.com/img923/64/TmtFwD.jpg)
+![](https://imagizer.imageshack.com/img923/3708/h8RQDj.jpg) ![](https://imagizer.imageshack.com/img923/3936/mn087q.jpg) ![](https://imagizer.imageshack.com/img923/5443/tL5shr.jpg) ![](https://imagizer.imageshack.com/img923/6204/iImqRw.jpg)
